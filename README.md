@@ -1,4 +1,4 @@
-### Hi there WELCOME to my profile👋
+### Hi there! WELCOME to my GitHub profile page.
 
 
 - 🔭 I’m currently working on building my technical skills on Data analysis
