@@ -1,6 +1,5 @@
-### Hi there 👋
+### Hi there WELCOME to my profile👋
 
-Here are some ideas to get you started:
 
 - 🔭 I’m currently working on building my technical skills on Data analysis
 - 🌱 I’m currently learning and developing skills to become a Data analyst
