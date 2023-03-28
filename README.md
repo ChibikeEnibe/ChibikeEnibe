@@ -6,7 +6,7 @@
 - 👯 I’m looking to collaborate on anything Data analytics and Projects
 - 🤔 I’m looking for help with difficulties/challenges faced with my learning process
 - 💬 Ask me about my learning journey
-- 📫 How to reach me: http://twitter.com/Gerralli
+- 📫 How to reach me: http://twitter.com/cheekay_gerald
 - 😄 Pronouns: (He/Him/His)
 - ⚡ Fun fact: Glad to be here🤗
 -->
